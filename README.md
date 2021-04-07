@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... everything actually 
 - 💬 Ask me about ...nothing big just small staffs 
 - 📫 How to reach me: ... leuldereje@kasmatech.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ...he
+- ⚡ Fun fact: ...people can't live with out oxygen 
